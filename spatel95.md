@@ -1,0 +1,1 @@
+Hello! My name is Shivam Patel and I am a Senior majoring in Computer Science. I have done internship at KLA and currently interning at KUB as a software developer. I love spending time coding, playing basketball, and biking!
