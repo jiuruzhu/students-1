@@ -1,0 +1,1 @@
+I am Jarod Jelinek, and I am a senior in Computer Engineering. I am from a town in West Tennesse called Medina. I am interested in learning more about coding and the fundamentals of digital archeology.
