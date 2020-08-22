@@ -1,0 +1,1 @@
+I am Isaac Sikkema, a senior in Computer Science with a minor in CyberSecurity. I'm also in the 5-year MS/BS program. I've done software development and security internships at both Expedia and ORNL. I'm taking the class because I've done some data-science stuff in the past, but I wanted to learn it formally.
