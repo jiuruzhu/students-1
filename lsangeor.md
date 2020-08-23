@@ -1,0 +1,1 @@
+Hey there! I'm Lydia San George and I'm super excited to be here :) I'm graduating this December and I'll be joining AT&T in January as a Techincal Business Manager! I'm very interested in this course and hype to learn from you!! 
