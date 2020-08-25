@@ -1,0 +1,1 @@
+My name is Michael Wermert and I am Senior studying Computer Science. My main areas of interest are web development and data analytics. I have been helping with developing data analytics software at my internship. 
