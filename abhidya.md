@@ -1,0 +1,1 @@
+I am Manny Bhidya and I am a Senior majoring in computer science at UTK,  I have been on Co-op for the past year working as a Data Engineer and am excited to take classes again. My hobbies include climbing, programming and gardening!
