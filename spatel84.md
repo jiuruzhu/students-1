@@ -1,0 +1,1 @@
+Hello, my name is Shivam Patel. I am a first semester graduate student working on my M.S. I received my B.S. from UT in May. I took this class since it was recommended to me, and I also think it will be interesting.
