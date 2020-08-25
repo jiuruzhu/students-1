@@ -1,0 +1,1 @@
+I am Kishan Tailor, a Senior in Computer Science at UTK with a minor in Math and Cyber Security. Since I always like to apply my skills to real world applications, hackathons are one of my favorite hobbies. 
