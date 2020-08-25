@@ -1,0 +1,1 @@
+I am Tyler Nguyen and I am majoring in Comptuter Science. I have interned at Amazon for the summer and this was my first job. I was working on the maps team, and it was very interesting to be a software engineer. I hope to work at other companies as a developer and hope to learn more and can hopefully use this class's topics to aid myself in my future career.
