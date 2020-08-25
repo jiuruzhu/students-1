@@ -1,0 +1,1 @@
+I am Zhekai Dong, a senior student in CS. This is the fourth year since I start to program. I really enjoy in coding and hopefully I can decide which area to research soon. My interests are coding and playing guitar.
