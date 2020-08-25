@@ -1,0 +1,1 @@
+Hello! My name is Justin Langston and I am a senior majoring in CS and minoring in cyber security. I am also a part of the 5 year BS/MS program. I have an interest in software development and cyber security, but I am still taking other elective classes to figure out which field I like best in CS. In my free time I like to cook, go for walks and exercise.
