@@ -1,1 +1,1 @@
-I am Jiuru Zhu and I have not entered anything related to my cakground or interest in the course.
+My name is Jiuru Zhu, and I am a senior majoring in Computer Science. I feel that this class gives a good taste of real world workflow as well as giving good practice with version control and working on multiple parts of a project.
